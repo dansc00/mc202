@@ -1,0 +1,1 @@
+001 139 168 considerado por muitos critico
